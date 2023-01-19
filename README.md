@@ -1,1 +1,0 @@
-# LAYSICO-CALCU
